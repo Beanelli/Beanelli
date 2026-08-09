@@ -1,5 +1,5 @@
 ⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=Pity&style=plastic&abbreviated=true)
-<p align="center"><a href="https://inkayyy.straw.page">𝑨𝓽𝖺-𝐵𝒐𝒐𝓀 </p>
+<p align="center"><a href="https://beans.atabook.org">𝑨𝓽𝖺-𝐵𝒐𝒐𝓀 </p>
 
   
 
