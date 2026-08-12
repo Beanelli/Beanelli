@@ -1,4 +1,4 @@
-⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=Pity&style=glass&abbreviated=true)
+⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=𝙋ity&style=glass&abbreviated=true)
 <p align="center"><a href="https://beans.atabook.org">𝑨𝓽𝖺-𝐵𝒐𝒐𝓀 </p>
 
   
