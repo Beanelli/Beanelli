@@ -1,4 +1,4 @@
-⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=𝙋𝗜𝗧𝗬&style=glass&abbreviated=true)
+⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=𝙋𝗜𝗧𝗬&style=glass&=true)
 <p align="center"><a href="https://beans.atabook.org">𝑨𝓽𝖺-𝐵𝒐𝒐𝓀 </p>
 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=white&width=435&lines=++%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80ur++leavin+'+%3F+;%E3%80%80%E3%80%80%E3%80%80%E3%80%80%E3%80%80+forever+n+ever%3F+)](https://git.io/typing-svg)
