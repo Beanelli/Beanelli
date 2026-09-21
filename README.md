@@ -1,5 +1,5 @@
 
-⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FFFFFF&label=𝙋𝗜𝗧𝗬&style=glass&=true)
+⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=000000&label=S𝗼𝗻𝗱𝗲𝗿♡&style=glass&=true)
 <p align="center"><a href="https://beans.atabook.org">𝑨𝓽𝖺-𝐵𝒐𝒐𝓀 </p>
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀Never gets better ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀-⠀⠀⠀⠀⠀  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀always gets worse
 
