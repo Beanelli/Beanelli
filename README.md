@@ -1,7 +1,8 @@
 
 
  ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀
-⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FC61AD&label=Forget♡&style=glass&=true) ⠀⠀⠀⠀
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><a href="https://beans.atabook.org">ATA-BOOK </p>ㅤㅤㅤ⠀⠀.  ⠀⠀⠀⠀⠀
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img width="700" height="600" alt="Untitled1000_20261014200006" src="https://github.com/user-attachments/assets/666894c1-a506-4a58-91d7-69308ec5f4c3" /> ⠀⠀⠀⠀
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> hi this is a wip ok? I keep changing this.
+⠀ ⠀ ⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=Beanelli&color=FC61AD&label=wins♡&style=glass&=true) ⠀⠀⠀⠀
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><a href="https://beans.atabook.org">ATA-BOOK </p>ㅤㅤㅤ⠀⠀
+ .  ⠀⠀⠀⠀⠀
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img width="600" height="400" alt="Untitled1000_20261014200006" src="https://i.pinimg.com/736x/44/b8/93/44b893227ac36d01dfb1b2922397afc5.jpg" /> ⠀⠀⠀⠀
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> hi this is a wip ok? I keep changing this. I cant center it help
