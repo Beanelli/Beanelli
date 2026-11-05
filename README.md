@@ -4,4 +4,4 @@
   ⠀⠀⠀⠀⠀
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"><img width="600" height="350" alt="Untitled1000_20261014200006" src="https://i.pinimg.com/736x/44/b8/93/44b893227ac36d01dfb1b2922397afc5.jpg" /> ⠀⠀⠀⠀
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center"> ──── ㅤ♡ ────
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">$\color{898B45}\normalsize{\texttt{" Ive completely failed . "}}$ <br>
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">$\color{00FDFF}\normalsize{\texttt{" Ive completely failed . "}}$ <br>
